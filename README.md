@@ -1,2 +1,2 @@
 # hello-world
-belajar men
+belajar belajar belajar
